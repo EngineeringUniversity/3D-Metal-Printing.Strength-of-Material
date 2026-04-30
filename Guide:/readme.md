@@ -1,0 +1,2 @@
+- https://asmedigitalcollection.asme.org/materialstechnology/article/146/3/031001/1193785/Investigation-of-the-Mechanical-Characteristics-of
+- https://besgroup.com/blogs/a-guide-to-youngs-modulus-and-material-stiffness/
